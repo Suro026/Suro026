@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Suro026
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python for AI & ML
+- 📫 How to reach me surajitsadhukhan870@gmail.com
+- 😄 Pronouns:him/he
